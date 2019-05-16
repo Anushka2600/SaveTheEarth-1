@@ -1,4 +1,4 @@
 # SaveTheEarth
 
 Spiderman:
-a good for nothing kiddo
+a strong kiddo
